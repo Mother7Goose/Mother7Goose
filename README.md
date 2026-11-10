@@ -15,6 +15,6 @@ I finished my AAS in Web Development & Design at Washtenaw Community College in 
 
 ## Right now
 
-Open to full-stack and front-end roles, remote (US) or hybrid around Detroit / Ann Arbor. Also learning Spanish (B1, working toward B2).
+Open to full-stack and front-end roles, remote (US) or hybrid around Detroit / Ann Arbor.
 
 📫 kaseymfg@gmail.com
